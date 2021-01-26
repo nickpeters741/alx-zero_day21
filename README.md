@@ -2,5 +2,5 @@
 
 I am confident that this journey will open up tons of opportunities for all of us
 
-Thank you!
+Thank you and good luck to us all!
 
